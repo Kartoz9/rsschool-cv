@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Kartoz9.github.io/rsschool-cv/cv
